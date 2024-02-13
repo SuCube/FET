@@ -1,4 +1,4 @@
 # FET
 University Guide Tour &amp; Entertainment 
 
-РУСТАМ НЕТ ЧЁРТ :*
+Yes, TUSUR is the best
