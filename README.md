@@ -1,4 +1,4 @@
 # FET
 University Guide Tour &amp; Entertainment 
 
-РУСТАМ ЧЁРТ :*
+РУСТАМ НЕТ ЧЁРТ :*
